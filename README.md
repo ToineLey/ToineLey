@@ -3,7 +3,7 @@
 - 🌱 I’m currently in highschool
 - 📫 How to reach me ? no
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I have 2 cats
+- ⚡ Fun fact: I like Minecraft
 
 <!---
 ToineLey/ToineLey is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
