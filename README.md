@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ToineLey
 - 👀 I’m interested in learning new skills
-- 🌱 I’m currently in highschool
+- 🌱 I’m currently a college student at ENIB
 - 📫 How to reach me ? no
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I like Minecraft
